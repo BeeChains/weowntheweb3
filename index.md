@@ -1,37 +1,12 @@
-## Welcome to GitHub Pages
+## WE OWN THE WEB 3
 
-You can use the [editor on GitHub](https://github.com/BeeChains/weowntheweb3/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+You managed to find The Eternal Essence Within or what we call our [Inner I Net Company/](https://innerinetcompany.carrd.co/) living [On The Web3/](http://innerinetcompany.ontheweb3/) or maybe just a Glitch in the matrix but you are [HERE NOW](http://b.herenow/) surfing cosmic waves within the [COSMATRIX FOUNDATION/](binnerspace.cosmatrixfoundation/) and [We Own The Web3/](http://innerinetcompany.weowntheweb3/).. Also, We [Own The Web3/](http://official.owntheweb3/) domain.   Now we extend our hand in Gratitude and Joy as we invite you to Join us as owners of true internet space. That's right you can finally say with humble awareness that [We Own The Internet/](http://innerinetcompany.weowntheinternet/).
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+Now, lets make a [Handshake](https://handshake.org/) stay home, go to [NameBase](https://namebase.io/) get a Decentralized DNS [Handshake Blockchain Top Level Domain](https://handshake.org/).
 
-### Markdown
+- our [WEB SECURITY SPECIALIST](http://admin.websecurityspecialist/). 
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+Use our Paxful Kiosk ⬇
 
-```markdown
-Syntax highlighted code block
+[Buy, Sell, or Trade here ![image](https://user-images.githubusercontent.com/37987346/97064635-5a94f300-1575-11eb-93ae-fc71560b1571.png)](https://paxful.com/roots/buy-bitcoin/index?kiosk=WDZdGMqXk7M)
 
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/BeeChains/weowntheweb3/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
