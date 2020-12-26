@@ -1,10 +1,12 @@
 ## WE OWN THE WEB 3
 
-You managed to find The Eternal Essence Within or what we call our [Inner I Net Company/](https://innerinetcompany.carrd.co/) living [On The Web3/](http://innerinetcompany.ontheweb3/) or maybe just a Glitch in the matrix but you are [HERE NOW](http://b.herenow/) surfing cosmic waves within the [COSMATRIX FOUNDATION/](http://binnerspace.cosmatrixfoundation/) and [We Own The Web3/](http://innerinetcompany.weowntheweb3/).. Also, We [Own The Web3/](http://official.owntheweb3/) domain.   Now we extend our hand in Gratitude and Joy as we invite you to Join us as owners of true internet space. That's right you can finally say with humble awareness that [We Own The Internet/](http://innerinetcompany.weowntheinternet/).
+# At [Inner I Net Company](http://dlink.innerinetcompany.hns.to/), we cultivate Divine Gifts to elevate the economics. Our Handshake Top Level Domains are nourished and manifested from the ROOT OF PERCEPTION, to spiritualize potentials for an abundance of fruits. [Own The Web 3](http://official.owntheweb3.hns.to/) we Consciously CHOOSE to Bend and [SHAPE Reality](http://innerinetcompany.shapereality.hns.to/) while customizing [The Root Zone](http://therootzone.hns.to/) File of the Internet with our [HNS-DOMAINS](http://home.hns-domains.hns.to/).
 
-Now, lets make a [Handshake](https://handshake.org/) stay home, go to [NameBase](https://namebase.io/) get a [Decentralized DNS](http://dnsdesigns.decentralizeddns/) and OWN a [Handshake Blockchain Top Level Domain](https://handshake.org/).
+# What is Handshake?
+- [Handshake](https://handshake.org/) 
+- [NameBase](https://namebase.io/)
 
-- our [WEB SECURITY SPECIALIST](http://admin.websecurityspecialist/). 
+
 
 Use our Paxful Kiosk ⬇
 
